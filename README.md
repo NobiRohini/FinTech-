@@ -42,3 +42,4 @@ Thank you for sharing this moment with me, and I look forward to the exciting op
 
 hashtag#FinTechCouncil hashtag#FinTechProfessionalCertificate hashtag#DeFi hashtag#Blockchain hashtag#Capstone #DrDr P Prasant #DrDr Phani Kumar Solleti hashtag#FinTechInnovation hashtag#FutureOfFinance hashtag#KLU
 
+![Rohini FinTech Certificate](https://github.com/user-attachments/assets/bfa2d753-941e-454b-972d-0a162c524189)
